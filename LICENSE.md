@@ -1,4 +1,4 @@
-
+math for brainrots exclusive Scripts offers the most advanced math for brainrots Script, with auto-collect and fly. Perfect for dominating any match.
 
 
 
